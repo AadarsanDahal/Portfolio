@@ -2,7 +2,7 @@
 
 Welcome to my portfolio website! This project is my first step in building a personal online presence, showcasing my skills, projects, and achievements.
 
-you check it out at projects 
+you check it out at www.aadarsandahal.com.np
 
 ---
 
